@@ -141,9 +141,9 @@ NamaOwner = settings.NamaOwner
 Qrovo = settings.Qrovo
 Qrgopy = settings.Qrgopay
 Qrdana = settings.Qrdana
-Nogpy = 11111111111 
-Noovo = 081227654358 
-Nodana = 081398860278
+Nogpy =085718465097
+Noovo = 082123983574
+Nodana = 082123983574
 multi = true
 nopref = false
 
