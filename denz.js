@@ -10,10 +10,10 @@ _-_-_--_-_-_--_-_-_--_-_-_-_-_--_-_-_-_-_--_-_-_--_-_-_-_--__-_-_-_--_-_-_--_-_-
    IG : @helga_store20
    TIK TOK : @ilhamgz_20 
    
-   UNTUK UBAH LINK QR NY
-OVO : https://f.top4top.io/p_2100f7vs70.jpg
-GOPAY : https://b.top4top.io/p_21003qgqr0.jpg
-DANA : https://j.top4top.io/p_2100is9it0.jpg
+   UNTUK UBAH LINK QR NYA
+OVO : https://www.mediafire.com/view/22d0k6dp3ammaf4
+GOPAY : https://www.mediafire.com/view/9vqjzk7ge6a22en
+DANA : https://www.mediafire.com/view/iigpc6j15wbbay4
 copy terus ganti link gambar qr kalian 
    ====================================================[ BOTZ Hanbu FF ]==============================================================
 ▒KASIH NAMA GW LAH KALO MO COMOT▒▒▒
