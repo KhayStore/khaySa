@@ -4,11 +4,11 @@
    © : Hanbu FF
 _-_-_--_-_-_--_-_-_--_-_-_-_-_--_-_-_-_-_--_-_-_--_-_-_-_--__-_-_-_--_-_-_--_-_-_-
    Jika ingin custom / beli bot seperti ini silahkan
-   caht wa.me/6282138919347
+   caht wa.me/6282123983574
    
    SUBSCRIBE YOUTUBE ME : Hanbu FF
-   IG : @helga_store20
-   TIK TOK : @ilhamgz_20 
+   IG : @Khaysaa15
+   TIKendit_real
    
    UNTUK UBAH LINK QR NYA
 OVO : https://www.mediafire.com/view/22d0k6dp3ammaf4
